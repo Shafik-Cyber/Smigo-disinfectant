@@ -1,0 +1,1 @@
+This website provides information about our hand sanitizer products, including their ingredients, benefits, and usage instructions. Our goal is to promote hand hygiene and provide a convenient way for customers to purchase our products online.
